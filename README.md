@@ -1,2 +1,3 @@
 # Askin-Jeeves
 I'm just poking around in the dark at this point......
+I need some people to collab with who are open to showing this old dog some new tricks.
